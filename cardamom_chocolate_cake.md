@@ -30,4 +30,6 @@ Dates: 08/15/2020
 13. Clean up edges of cake and dust with cocoa pistachio
 
 ### Thoughts
-The extra cardamom is fantastic. All flavors very well balanced. Would maybe make a lighter dulce de leche (whip it with whipped cream?) and use stronger coffee next time.
+The extra cardamom is fantastic. All flavors very well balanced. Would maybe make a lighter dulce de leche (whip it with whipped cream?) and use stronger coffee next time. Dough is like Swedish Kladdkaka, moist cake. No flour!
+
+Potential names: 
